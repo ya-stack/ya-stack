@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I am Yachna!👋
 
 ### (SELF) ATTENTION IS ALL YOU NEED!
 
